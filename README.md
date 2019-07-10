@@ -1,3 +1,3 @@
 # Christoph's Blog
 
-Welcome!
+Welcome y'all!
